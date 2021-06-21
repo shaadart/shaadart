@@ -1,7 +1,5 @@
-### Hellowe 👋
-
-Here are some ideas to get you started:
-
+# Hellowe 👋
+Creativity++,
 - 🔭 I’m currently working on for the World, and Toodolee.
 - 🌱 I’m currently learning Aerodynamics✈️ , Football⚽, (unlimited things) 
 - 👯 I’m looking to collaborate with anyone who is interested in World Problems, 
