@@ -1,5 +1,5 @@
 # Hellowe 👋
 Creativity++ 
-I am keerkeet, 
-You may know me, from instagram or youtube!
+I am Shaad, 
+You may know me, from Instagram or YouTube!
 ehehe. @keerkeeet
