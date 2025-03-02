@@ -1,4 +1,4 @@
-Artless Artist, Basic Animator, jackleg Engineer, layman Writer, Rookie Poet, Noob Chess-er, Student of Peace (list goes on and on)
+Artless Artist, Basic Animator, jackleg Engineer, layman Writer, Rookie Poet, Noob Chess player, Student of Peace (list goes on and on)
 
 I am trying to create a better world using Software Engineering, 
 
