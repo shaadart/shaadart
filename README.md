@@ -1,9 +1,9 @@
-![me](https://github.com/user-attachments/assets/c19dd7be-0d1c-4b21-b762-c4487ac25288)
+<img width="3508" height="1480" alt="hooder" src="https://github.com/user-attachments/assets/c98ba49f-20cb-48cb-aeaa-225c4c246611" />
 
 
 
-Salaams, I’m Shaad. I’ve worked across various fields. 
-I’m an **animator**, a **writer** of poems, stories, and rap, and I **create a lot of content** on YouTube and Instagram. 
+Peace be upon you, I’m Shaad. I’ve worked across various fields. 
+I’m an **animator**, a **writer** of poems, stories, and songs, and I **create a lot of content** on YouTube and Instagram. 
 I also love playing **chess** and football, and I **travel** a lot ~.
 
 At the core, 
